@@ -10,4 +10,4 @@ Im the first who post this on github so star it or gay xD
 SELL = GAY
 
 SOURCE BELOW 
-https://cdn.discordapp.com/attachments/1031629924479537272/1031633018340777984/valorant-project-main.rar This is Bounty SOURCE HAHAHAHA
+https://cdn.discordapp.com/attachments/1030538980657205299/1031636229457981450/valorant-project-main.rar This is Bounty SOURCE HAHAHAHA
