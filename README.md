@@ -1,7 +1,6 @@
 # Hopesar-is-Cool
-Pasted Shit LOL
 
-The First rar Hopesar Valorant is Just the shity Pasted Bounty supreme
+The First rar Hopesar Valorant is Just the  Bounty supreme
 
 I post rn The Real bounty source free 4 you Other guys Sell them for 50$ :CLOWN: 
 
